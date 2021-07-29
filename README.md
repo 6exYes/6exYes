@@ -1,6 +1,6 @@
 🍝 > Hi, I’m @DJ
 -----------
-🦜 > How to reach me https://twitter.com/DJ_Ruv | DJ☻#4200
+🦜 > How to reach me DJ☻#4200
 -----------
 <img align="left" alt="Lua" width="26px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Lua-Logo.svg/1200px-Lua-Logo.svg.png">
 <img align="left" alt="Python" width="26px" src="https://lh3.googleusercontent.com/proxy/KO-CSK8gyaAlVQ52A1mPqP2G826uY4yjDzrV5na4IU3rk5VMghgb4sS62hdTpLUEfvB_RLXA4GqCP_MQBD9Y06Bxa0iLWpDECWAXJ0EXkvqFTWnjW1x5xALM7tqWrjQ73Ig">
