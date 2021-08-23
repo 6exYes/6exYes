@@ -1,6 +1,6 @@
 🍝 > Hi, I’m @DJ
 -----------
-🦜 > How to reach me DJ☻#4200
+🦜 > How to reach me J (Troll)#4200
 -----------
 <img align="left" alt="Lua" width="26px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Lua-Logo.svg/1200px-Lua-Logo.svg.png">
 <img align="left" alt="Python" width="26px" src="https://upload.wikimedia.org/wikipedia/commons/thumb/0/0a/Python.svg/768px-Python.svg.png">
